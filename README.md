@@ -10,3 +10,5 @@ INTRIVIA keren
 
 ## Kesan Pesan Cluster 7 Sejauh Ini 
 Cluster 7 asik dan SIUUUUUUUU
+## Harapan Kuliah 
+Lulus. 
